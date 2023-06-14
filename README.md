@@ -10,6 +10,8 @@
 
 *我的小红书昵称==抖音昵称==微博账号==一切社交平台==“纠结当道”*
 
+yyds
+
 并且都是柯南的头像
 
 ![WechatIMG1](https://user-images.githubusercontent.com/9566402/185802023-1f28c90a-40e7-446e-8dad-420c83f83e38.jpeg)
